@@ -3,6 +3,11 @@ layout: default
 title: Course Calendar
 nav_order: 4
 ---
+# Course Calendar
+The most accurate and up-to-date version of this calendar can be found on this site. Use this online calendar to check on reading assignments and other due dates, rather than the pdf or paper version of our syllabus, since those versions of the syllabus will not be updated throughout the semester.
+
+I reserve the right to change the course calendar as needed; advance notice will always be given of any changes.
+
 ## Week 1: Introductions
 ### Monday, August 26
 - Practicalities, program review and structure
@@ -36,6 +41,7 @@ nav_order: 4
 - Applying for fellowships and other research funding, general fellowship resources, writing fellowship and/or grant applications, timelines
 	- Resources for Fellowship cfps
 - Writing for broader audiences
+    - Visit from Caroline Levine 
 
 ## Week 8
 ### Monday, October 14: NO CLASS -- FALL BREAK/INDIGENOUS PEOPLES' DAY
