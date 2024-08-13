@@ -1,0 +1,78 @@
+---
+layout: default
+title: Course Calendar
+nav_order: 4
+---
+## Week 1: Introductions
+### Monday, August 26
+- Practicalities, program review and structure
+
+## Week 2
+### Monday, September 2: NO CLASS -- LABOR DAY
+
+## Week 3: The First Year of PhD Study
+### Monday, September 9
+- Managing coursework, finding mentors, preparing for second-year review and exams
+- Visit from Katrina Overton
+
+## Week 4: Conference Presentations
+### Monday, September 16
+- Current graduate student panel: Laila Nashid, Chijioke Onah, Hunter Phillips, and Susannah Sharpless
+- Applying to conferences, writing abstracts, attending and presenting at conferences, conference funding
+
+## Week 5: Olin Library
+### Monday, September 23
+- Library session with Fred Muratori: Meet in Olin 106G (may be relabeled as Olin 108)
+    - Please bring a laptop to this session.
+- Journal review presentation info
+
+## Week 6: Article Publishing
+### Monday, September 30
+- Turning a seminar paper into an article, researching and submitting to a journal, the peer review process, managing reviewer feedback, timelines, publishing chapters from your dissertation
+- Journal review presentations
+
+## Week 7: Fellowships and Grants and Writing for Broader Audiences
+### Monday, October 7
+- Applying for fellowships and other research funding, general fellowship resources, writing fellowship and/or grant applications, timelines
+	- Resources for Fellowship cfps
+- Writing for broader audiences
+
+## Week 8
+### Monday, October 14: NO CLASS -- FALL BREAK/INDIGENOUS PEOPLES' DAY
+
+## Week 9: Rare and Manuscript Collections
+### Monday, October 21
+- Rare and Manucript Collections session with Emily Beran: Meet in Rare and Manuscript Collections
+- Last day to drop classes or change grading basis
+- Meetings with Lindsay this week
+
+## Week 10: Spring Courses and Faculty Panel
+### Monday, October 28
+- Visit from Katrina Overton: pre-enrollment and SP25 classes
+- Faculty panel: TBA
+- Meetings with Lindsay this week
+
+## Week 11
+### Monday, November 4: NO CLASS -- MENTAL HEALTH DAY
+- Lindsay will have office hours during class
+
+## Week 12: Teaching
+### Monday, November 11
+- Teaching an FWS, the Knight Institute Summer Training Program, navigating teaching along with coursework, teaching resources at Cornell
+- Visit from Kate McCullough, Director of Graduate Student Teaching
+
+## Week 13: Academic Jobs
+### Monday, November 18
+- Applying to academic jobs, materials, application timelines, interviews, campus visits
+- Visit from Lenora Warren, Academic jobs placement officer
+
+## Week 14
+### Monday, November 25: NO CLASS -- THANKSGIVING WEEK
+
+## Week 15: Jobs Beyond Academia
+### Monday, December 2
+- Visit from PhD working outside academia: TBA
+
+## Week 16: Conclusions
+### Monday, December 9
+- Wrapping up and celebrating the end of the semester
