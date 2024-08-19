@@ -25,9 +25,9 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Current graduate student panel: Laila Nashid, Chijioke Onah, Hunter Phillips, and Susannah Sharpless
 - Applying to conferences, writing abstracts, attending and presenting at conferences, conference funding
 
-## Week 5: Olin Library
+## Week 5: Olin Library: Meet in Olin 106G (may be relabeled as Olin 108)
 ### Monday, September 23
-- Library session with Fred Muratori: Meet in Olin 106G (may be relabeled as Olin 108)
+- Library session with Fred Muratori
     - Please bring a laptop to this session.
 - Journal review presentation info
 
@@ -46,26 +46,24 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 8
 ### Monday, October 14: NO CLASS -- FALL BREAK/INDIGENOUS PEOPLES' DAY
 
-## Week 9: Rare and Manuscript Collections
+## Week 9: Rare and Manuscript Collections: Meet in Rare and Manuscript Collections
 ### Monday, October 21
-- Rare and Manucript Collections session with Emily Beran: Meet in Rare and Manuscript Collections
+- Rare and Manucript Collections session with Emily Beran
 - Last day to drop classes or change grading basis
-- Meetings with Lindsay this week
 
 ## Week 10: Spring Courses and Faculty Panel
 ### Monday, October 28
 - Visit from Katrina Overton: pre-enrollment and SP25 classes
 - Faculty panel: TBA
-- Meetings with Lindsay this week
 
 ## Week 11
-### Monday, November 4: NO CLASS -- MENTAL HEALTH DAY
+### Monday, November 4: NO CLASS -- INDIVIDUAL MEETINGS
 - Lindsay will have office hours during class
 
 ## Week 12: Teaching
-### Monday, November 11
+### Monday, November 11: Meet in GSH 258
 - Teaching an FWS, the Knight Institute Summer Training Program, navigating teaching along with coursework, teaching resources at Cornell
-- Visit from Emily Parsons and Katrina Overton about teaching applications 
+- Visit from Emily Parsons and Katrina Overton about teaching applications
 - Visit from Kate McCullough, Director of Graduate Student Teaching
 
 ## Week 13: Academic Jobs
