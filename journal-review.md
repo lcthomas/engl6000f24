@@ -5,7 +5,7 @@ nav_order: 3
 ---
 # Journal Review Presentation
 ## Due:
-- Journal subfield(s) and top 3 selections due by class on Monday, September 16
+- Journal subfield(s) and top 3 journal selections due by class on Monday, September 16
 - Presentations during class on Monday, September 30
 
 Your journal review presentation is a short, informal ~5-minute presentation to the class about a leading or well-known peer-reviewed journal in one of your fields or subfields. After selecting the journal, you will investigate its history, editorial stance, foci and/or distinctive identity as a journal, institutional location, publication schedule or sequence, and/or recent issues. You will then present this information about your journal to the class on Monday, September 30.
