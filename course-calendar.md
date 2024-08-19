@@ -24,12 +24,12 @@ I reserve the right to change the course calendar as needed; advance notice will
 ### Monday, September 16
 - Current graduate student panel: Laila Nashid, Chijioke Onah, Hunter Phillips, and Susannah Sharpless
 - Applying to conferences, writing abstracts, attending and presenting at conferences, conference funding
+- Please select your journal for your journal review presentation by class
 
 ## Week 5: Olin Library: Meet in Olin 106G (may be relabeled as Olin 108)
 ### Monday, September 23
 - Library session with Fred Muratori
     - Please bring a laptop to this session.
-- Journal review presentation info
 
 ## Week 6: Article Publishing
 ### Monday, September 30
