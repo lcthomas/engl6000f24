@@ -12,8 +12,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 ### Monday, August 26
 - Practicalities, program review and structure
 
-## Week 2
-### Monday, September 2: NO CLASS -- LABOR DAY
+## Week 2: NO CLASS
+### Monday, September 2: LABOR DAY
 
 ## Week 3: The First Year of PhD Study
 ### Monday, September 9
@@ -43,8 +43,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Writing for broader audiences
     - Visit from Caroline Levine
 
-## Week 8
-### Monday, October 14: NO CLASS -- FALL BREAK/INDIGENOUS PEOPLES' DAY
+## Week 8: NO CLASS
+### Monday, October 14: FALL BREAK/INDIGENOUS PEOPLES' DAY
 
 ## Week 9: Rare and Manuscript Collections: Meet in Rare and Manuscript Collections
 ### Monday, October 21
@@ -56,8 +56,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Visit from Katrina Overton: pre-enrollment and SP25 classes
 - Faculty panel: TBA
 
-## Week 11
-### Monday, November 4: NO CLASS -- INDIVIDUAL MEETINGS
+## Week 11: NO CLASS
+### Monday, November 4: INDIVIDUAL MEETINGS
 - Lindsay will have office hours during class
 
 ## Week 12: Teaching
@@ -71,8 +71,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Applying to academic jobs, materials, application timelines, interviews, campus visits
 - Visit from Lenora Warren, Academic jobs placement officer
 
-## Week 14
-### Monday, November 25: NO CLASS -- THANKSGIVING WEEK
+## Week 14: NO CLASS
+### Monday, November 25: THANKSGIVING WEEK
 
 ## Week 15: Jobs Beyond Academia
 ### Monday, December 2
