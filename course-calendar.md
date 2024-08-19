@@ -63,7 +63,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 12: Teaching
 ### Monday, November 11: Meet in GSH 258
 - Teaching an FWS, the Knight Institute Summer Training Program, navigating teaching along with coursework, teaching resources at Cornell
-- Visit from Emily Parsons and Katrina Overton about teaching applications
+- Visit from Emily Parsons and Katrina Overton: teaching applications
 - Visit from Kate McCullough, Director of Graduate Student Teaching
 
 ## Week 13: Academic Jobs
