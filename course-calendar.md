@@ -41,7 +41,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Applying for fellowships and other research funding, general fellowship resources, writing fellowship and/or grant applications, timelines
 	- Resources for Fellowship cfps
 - Writing for broader audiences
-    - Visit from Caroline Levine 
+    - Visit from Caroline Levine
 
 ## Week 8
 ### Monday, October 14: NO CLASS -- FALL BREAK/INDIGENOUS PEOPLES' DAY
@@ -65,6 +65,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 12: Teaching
 ### Monday, November 11
 - Teaching an FWS, the Knight Institute Summer Training Program, navigating teaching along with coursework, teaching resources at Cornell
+- Visit from Emily Parsons and Katrina Overton about teaching applications 
 - Visit from Kate McCullough, Director of Graduate Student Teaching
 
 ## Week 13: Academic Jobs
