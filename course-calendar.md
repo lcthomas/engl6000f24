@@ -18,7 +18,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 3: The First Year of PhD Study
 ### Monday, September 9
 - Managing coursework, finding mentors, preparing for second-year review and exams
-- Visit from Katrina Overton
+    - Visit from Katrina Overton
 
 ## Week 4: Conference Presentations
 ### Monday, September 16
