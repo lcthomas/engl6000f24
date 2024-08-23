@@ -48,7 +48,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 9: Rare and Manuscript Collections: Meet in Rare and Manuscript Collections
 ### Monday, October 21
-- Rare and Manucript Collections session with Emily Beran
+- Rare and Manucript Collections session with Katherine Reagan
 - Last day to drop classes or change grading basis
 
 ## Week 10: Spring Courses and Faculty Panel
