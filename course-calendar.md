@@ -20,6 +20,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Managing coursework, finding mentors, preparing for second-year review and exams
     - Visit from Katrina Overton
 - BIG QUESTIONS in literary studies
+    - Please bring to class one "big question" you have about the discipline(s)/your subfield(s), the profession more generally, and/or academia/higher ed in the United States 
 
 ## Week 4: Conference Presentations
 ### Monday, September 16
