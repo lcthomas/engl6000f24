@@ -19,6 +19,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ### Monday, September 9
 - Managing coursework, finding mentors, preparing for second-year review and exams
     - Visit from Katrina Overton
+- BIG QUESTIONS in literary studies
 
 ## Week 4: Conference Presentations
 ### Monday, September 16
