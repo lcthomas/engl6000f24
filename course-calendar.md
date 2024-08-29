@@ -71,7 +71,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 13: Academic Jobs
 ### Monday, November 18
 - Applying to academic jobs, materials, application timelines, interviews, campus visits
-- Visit from Lenora Warren, Academic jobs placement officer
+- Visit from Lenora Warren, Academic Jobs Placement Officer
 
 ## Week 14: NO CLASS
 ### Monday, November 25: THANKSGIVING WEEK
