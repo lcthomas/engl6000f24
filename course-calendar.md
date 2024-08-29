@@ -55,8 +55,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 10: Spring Courses and Faculty Panel
 ### Monday, October 28
+- Faculty panel: Elisha Cohn, Jeremy Braddock, Rebeca Hey-Colón, and Rayna Kalas
 - Visit from Katrina Overton: pre-enrollment and SP25 classes
-- Faculty panel: TBA
 
 ## Week 11: NO CLASS
 ### Monday, November 4: INDIVIDUAL MEETINGS
@@ -78,7 +78,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 15: Jobs Beyond Academia
 ### Monday, December 2
-- Visit from PhD working outside academia: TBA
+- Visit from PhDs working outside academia: TBA
+- Visit from Susi Varvayanis, Executive Director, Careers Beyond Academia
 
 ## Week 16: Conclusions
 ### Monday, December 9
