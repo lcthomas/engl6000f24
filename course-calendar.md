@@ -78,7 +78,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 15: Jobs Beyond Academia
 ### Monday, December 2
-- Visit from PhDs working outside academia: TBA
+- Panel with PhDs working outside of faculty jobs/academia: Maggie Reynolds (Outreach and information Services Librarian, Cornell Prison Education Program), Elisabeth Strayer (Manager of Content, Verra), and Ruth Trego (Senior Technical Editor, CrowdStrike)
 - Visit from Susi Varvayanis, Executive Director, Careers Beyond Academia
 
 ## Week 16: Conclusions
