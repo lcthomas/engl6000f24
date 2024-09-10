@@ -43,3 +43,5 @@ Your presentation should only be around 5 minutes long. I will set a timer that 
 The journals listed below have already been selected by the corresponding student. Please consider this list before submitting your ranked list of journals to me.
 
 - Phoenix: *ISLE (Interdisciplinary Studies in Literature and Environment)*
+- Yi: *Medium Ævum*
+- Dana: *Cambridge Journal of Postcolonial Literary Inquiry*
