@@ -45,3 +45,4 @@ The journals listed below have already been selected by the corresponding studen
 - Phoenix: *ISLE (Interdisciplinary Studies in Literature and Environment)*
 - Yi: *Medium Ævum*
 - Dana: *Cambridge Journal of Postcolonial Literary Inquiry*
+- Tanner: *The Review of English Studies*
