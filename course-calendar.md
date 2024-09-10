@@ -26,7 +26,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ### Monday, September 16
 - Current graduate student panel: Laila Nashid, Chijioke Onah, Hunter Phillips, and Susannah Sharpless
 - Applying to conferences, writing abstracts, attending and presenting at conferences, conference funding
-- Please select your journal for your journal review presentation by class
+- Please send Lindsay your ranked list of journals for your journal review presentation by class
 
 ## Week 5: Olin Library: Meet in Olin 106G (may be relabeled as Olin 108)
 ### Monday, September 23
@@ -78,7 +78,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 15: Jobs Beyond Academia
 ### Monday, December 2
-- Panel with PhDs working outside of faculty jobs/academia: Maggie Reynolds (Outreach and information Services Librarian, Cornell Prison Education Program), Elisabeth Strayer (Manager of Content, Verra), and Ruth Trego (Senior Technical Editor, CrowdStrike)
+- Panel with PhDs working outside of faculty jobs/academia: Maggie Reynolds (Outreach and Information Services Librarian, Cornell Prison Education Program), Elisabeth Strayer (Manager of Content, Verra), and Ruth Trego (Senior Technical Editor, CrowdStrike)
 - Visit from Susi Varvayanis, Executive Director, Careers Beyond Academia
 
 ## Week 16: Conclusions
