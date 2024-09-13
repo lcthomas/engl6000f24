@@ -46,3 +46,5 @@ The journals listed below have already been selected by the corresponding studen
 - Yi: *Medium Ævum*
 - Dana: *Cambridge Journal of Postcolonial Literary Inquiry*
 - Tanner: *The Review of English Studies*
+- Carolina: *Victorian Literature and Culture*
+- Teddy: *Journal of Cultural Analytics*
