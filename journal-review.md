@@ -48,3 +48,4 @@ The journals listed below have already been selected by the corresponding studen
 - Tanner: *The Review of English Studies*
 - Carolina: *Victorian Literature and Culture*
 - Teddy: *Journal of Cultural Analytics*
+- Edna: *Amerasia Journal*
