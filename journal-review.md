@@ -49,3 +49,4 @@ The journals listed below have already been selected by the corresponding studen
 - Carolina: *Victorian Literature and Culture*
 - Teddy: *Journal of Cultural Analytics*
 - Edna: *Amerasia Journal*
+- John: *Interventions: International Journal of Postcolonial Studies*
