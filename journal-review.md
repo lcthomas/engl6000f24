@@ -51,5 +51,5 @@ The journals listed below have already been selected by the corresponding studen
 - Edna: *Amerasia Journal*
 - John: *Interventions: International Journal of Postcolonial Studies*
 - Ishan: *Diacritics*
-- Hillary: *Journal of Literature, Culture and Media Studies*
+- Hillary: *Narrative*
 - Max: *The Explicator*
