@@ -49,14 +49,14 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 8: NO CLASS
 ### Monday, October 14: FALL BREAK/INDIGENOUS PEOPLES' DAY
 
-## Week 9: Rare and Manuscript Collections: Meet in Rare and Manuscript Collections
+## Week 9: Rare and Manuscript Collections: Meet in the lecture room in Rare and Manuscript Collections (level 2B of Carl A. Kroch Library)
 ### Monday, October 21
 - Rare and Manucript Collections session with Katherine Reagan
 - Last day to drop classes or change grading basis
 
 ## Week 10: Spring Courses and Faculty Panel
 ### Monday, October 28
-- Faculty panel: Elisha Cohn, Jeremy Braddock, Rebeca Hey-Colón, and Rayna Kalas
+- Faculty panel: Jeremy Braddock, Elisha Cohn, Rebeca Hey-Colón, and Rayna Kalas
 - Visit from Katrina Overton: pre-enrollment and SP25 classes
 
 ## Week 11: NO CLASS
