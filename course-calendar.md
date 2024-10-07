@@ -43,8 +43,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 ### Monday, October 7
 - Applying for fellowships and other research funding, general fellowship resources, writing fellowship and/or grant applications, timelines
 	- Resources for Fellowship cfps
-- Writing for broader audiences
-    - Visit from Caroline Levine
+- Visit from Caroline Levine: Writing for broader audiences
 
 ## Week 8: NO CLASS
 ### Monday, October 14: FALL BREAK/INDIGENOUS PEOPLES' DAY
@@ -65,9 +64,8 @@ I reserve the right to change the course calendar as needed; advance notice will
 
 ## Week 12: Teaching
 ### Monday, November 11: Meet in GSH 258 at 3:15 PM (Colloquium will go from 3:15 - 5:45 pm on this day)
-- Teaching an FWS, the Knight Institute Summer Training Program, navigating teaching along with coursework, teaching resources at Cornell
-- Visit from Emily Parsons, Katrina Overton, and David Faulkner: teaching applications
-- Visit from Kate McCullough, Director of Graduate Student Teaching
+- Visit from Kate McCullough, Director of Graduate Student Teaching: What happens in the classroom
+- Visit from Emily Parsons, Katrina Overton, and David Faulkner: Applying to teach an FWS
 
 ## Week 13: Academic Jobs
 ### Monday, November 18
