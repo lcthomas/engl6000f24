@@ -64,7 +64,7 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Lindsay will have office hours during class
 
 ## Week 12: Teaching
-### Monday, November 11: Meet in GSH 258
+### Monday, November 11: Meet in GSH 258 at 3:15 PM (Colloquium will go from 3:15 - 5:45 pm on this day)
 - Teaching an FWS, the Knight Institute Summer Training Program, navigating teaching along with coursework, teaching resources at Cornell
 - Visit from Emily Parsons, Katrina Overton, and David Faulkner: teaching applications
 - Visit from Kate McCullough, Director of Graduate Student Teaching
