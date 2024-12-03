@@ -83,3 +83,4 @@ I reserve the right to change the course calendar as needed; advance notice will
 ## Week 16: Conclusions
 ### Monday, December 9: Meet in GSH 234 at 3:30 pm
 - Wrapping up and celebrating the end of the semester
+    - Around 4:30 we will head from GSH to the Big Red Barn!
