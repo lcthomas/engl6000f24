@@ -81,5 +81,5 @@ I reserve the right to change the course calendar as needed; advance notice will
 - Visit from Susi Varvayanis, Executive Director, Careers Beyond Academia
 
 ## Week 16: Conclusions
-### Monday, December 9
+### Monday, December 9: Meet in GSH 234 at 3:30 pm
 - Wrapping up and celebrating the end of the semester
